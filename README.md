@@ -1,1 +1,1 @@
-# Jav-ascript
+# Java-script
